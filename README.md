@@ -1,4 +1,4 @@
-## Hi there 👋
+## I am an astronomy student @ Columbia, and currently doing research at the American Museum of Natural History!
 
 <!--
 **aidenc02/aidenc02** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
